@@ -1,0 +1,1 @@
+Mock photography portfolio website front page, minimalist
